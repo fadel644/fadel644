@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fadel644
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning how to learn and programm
+- 🌱 I’m currently learning how to code and programm
 - 💞️ I’m looking to collaborate on many project in the future
 - 📫 How to reach me click on this email to contact me fadoAB64@gmail.com
 - 😄 Pronouns: AB
